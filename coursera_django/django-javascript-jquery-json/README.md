@@ -16,3 +16,7 @@ https://drive.google.com/file/d/1-0vzHSSt-SqmZcGX6O10L84CMDOLBm4H/view?usp=shari
 Slides:
 https://drive.google.com/file/d/1JyR6QBPLZ9ssvp9tqnXqwTR_-F1sXETb/view?usp=sharing
 
+
+## Week 4
+
+Slides: https://drive.google.com/file/d/1E-r2kTxxlYD-nF5e9veR5Ahd_ZdRQMrd/view?usp=sharing
